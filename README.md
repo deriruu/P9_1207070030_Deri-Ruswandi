@@ -1,1 +1,0 @@
-# P9_1207070030_Deri-Ruswandi
